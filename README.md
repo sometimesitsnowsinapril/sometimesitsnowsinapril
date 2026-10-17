@@ -1,3 +1,3 @@
-<p align="center"> he used to stay so strong, unafraid to die.
+<p align="center"> we don't check profiles.
 
-<p align="center"> unafraid of the death that left me hypnotized.
+<p align="center"> block if unwanted.
